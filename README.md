@@ -1,1 +1,0 @@
-# sergeygavrilyk.github.io
